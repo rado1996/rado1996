@@ -1,4 +1,4 @@
-# Hi there, I'm Conrad Camit 👋
+# Hi there, I'm Conrad Joseph Camit 👋
 
 Data Analyst & Systems Specialist based in San Francisco, CA.
 
